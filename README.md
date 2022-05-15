@@ -1,4 +1,4 @@
-### Hola, soy lautaro 👋
+### Hi, I'm lautaro 👋
 
 Here are some ideas to get you started:
 
